@@ -3,4 +3,4 @@
 * 1 tsp salt
 * 1/2 onion
 * 10 tbsp coriander
-* loads of garlic
+* 1 toe of garlic
