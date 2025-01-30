@@ -3,3 +3,4 @@
 * 1 tsp salt
 * 1/2 onion
 * 10 tbsp coriander
+* garlic
